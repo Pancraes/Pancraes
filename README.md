@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-🔭 I’m a (soon-to-be) Computer Science major at the University of Toronto! (BCs)
+🔭 I’m a Computer Science major at the University of Toronto! (BSc)
